@@ -1,4 +1,4 @@
-###新人怎么投资比特币
+### 不投钱怎么玩数字货币，币圈最新最全糖果攻略！
 QQ群号:489180540
 
 工具
@@ -148,6 +148,8 @@ https://www.cccbtc.com/ccc/register?code=8psA
 Register with your ETH address here :https://drop.allsportschain.com/EN/index?r=4012cc17Receive free [20SOC]
 
 推荐钱包：imtoken设置好钱包 获取SOC的 ETH地址
+
+***
 
 中文：
 
