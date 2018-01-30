@@ -11,6 +11,40 @@ QQ群号:489180540
 聊天工具：telegram  (群里发送验证码需要使用，百度下载)
 
 =========定期更新
+1月30 日更新 
+
+项目名Pixiecoin
+
+项目简介：分布式的虚拟商品交易平台，为内容创作者提供服务。《妖精购物街》游戏已经上线，设计者在这里提交个人设计作品，最终通过向广大个人玩家进行销售获得报酬。
+
+http://pixie.tokenairdrop.info/en/invitations/?from=6445d42e22
+
+输入您的以太坊地址ETH
+***
+项目名 AELF = $2.5 (3个)
+
+吃糖果步骤：
+
+http://pixie.tokenairdrop.info/en/invitations/?from=6445d42e22
+
+输入您的以太坊地址ETH
+***
+项目名Shareschain
+
+官网  http://shareschain.net/index-zh.html
+
+项目简介：
+
+吃糖果步骤：全球第一条锚定真实资产的可挖矿公链，被巴比特报道过，糖果刚刚开始，很幸运这里是Telegram的首发！注册送500 SCT，邀请送200 SRT！个人上限4500 SCT，限时总共发放4000万糖果，发完结束，大家速度！
+
+1.http://candy.shareschain.net/#/?code=ICODEKnQ6bd1R
+
+输入您的以太坊地址，获取验证码
+
+2. 加入电报群输入验证码
+
+https://t.me/SharesChain
+***
 
 1月29 日更新 
 
