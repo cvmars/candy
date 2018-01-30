@@ -1,5 +1,6 @@
-# candy
-不投钱怎么玩数字货币，币圈最新最全糖果攻略！
+
+# 不投钱怎么玩数字货币，币圈最新最全糖果攻略！
+
 
 新人怎么投资比特币
 工具
@@ -15,7 +16,7 @@
 
 1月28日更新 
 
-LINO 明天上币安15枚  https://drop.lino.network?code=qoJw0wM2
+LINO 明天上币安15枚  https://drop.lino.network?code=qoJw0wM2(https://drop.lino.network?code=qoJw0wM2)
 
 真格基金投资 李笑来 有项目背景
 
